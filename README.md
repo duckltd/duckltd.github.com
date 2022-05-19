@@ -1,1 +1,0 @@
-# duckltd.github.com
